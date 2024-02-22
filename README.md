@@ -7,3 +7,4 @@ Silahkan gunakan format berikut:
 
 Berikut adalah daftar volunter yang diterima:  
 * Azharihsb 152, [azhari152.co.id](https://azhari152.co.id).
+* Kasim27, [kasim27.co.id](https://kasim27.co.id).
